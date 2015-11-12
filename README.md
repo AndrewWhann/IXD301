@@ -9,4 +9,3 @@ These are all links to my dropbox.
 
 
 
-+[early Prototype](https://www.dropbox.com/s/8u7a1na6kssxspn/early%20prototype.mov?dl=0)
